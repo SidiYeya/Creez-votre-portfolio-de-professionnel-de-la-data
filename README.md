@@ -50,6 +50,3 @@ On prend un café ensemble et tu me montres ta carte mentale, tes livrables orga
 Bon courage ! Tu vas faire des merveilles !
 Hayley
 
-
-https://github.com/SidiYeya
-https://public.tableau.com/app/profile/sidi.yeya.sounfountera/viz/Sounfountera_Sidi_Yeya/Tableaudebord1
